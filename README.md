@@ -1,6 +1,6 @@
 # Nino001, Your Electronic Pet
 Personality: 
-easy going, Adventurous(watch out for damages), understanding(most of the time) 
+easy going, adventurous(watch out for damages), understanding(most of the time) 
 <br>
 Hair Colour:
 Flexible. Customise with hairdye
