@@ -8,7 +8,7 @@ Flexible. Customise with hairdye
 Eye Colour:
 Flexible. Customise with contact lenses
 <br>
-Thing to take notice of:
+Things to take notice of:
 <br>
 1. Social events would be nice, but prefers staying alone
 2. minimum 6 hrs of sleep needed per day; can take up to 15 hrs
