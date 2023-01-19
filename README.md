@@ -1,9 +1,19 @@
-# Nina
-Hi
+# Nino001, Your Electronic Pet
+Personality: 
+easy going, Adventurous(watch out for damages), understanding(most of the time) 
 <br>
-Signup to get free relationship counselling 
+Hair Colour:
+Flexible. Customise with hairdye
 <br>
-19 years of experience
+Eye Colour:
+Flexible. Customise with contact lenses
+<br>
+Thing to take notice of:
+<br>
+1. Social events would be nice, but prefers staying alone
+2. minimum 6 hrs of sleep needed per day; can take up to 15 hrs
+3. Weak stomache; too much food will not be ok
 <br>
 Your satisfaction is guaranteed
 <br>
+**Whatch out Will Bite!**
